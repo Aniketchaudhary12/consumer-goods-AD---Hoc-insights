@@ -1,0 +1,1 @@
+# consumer-goods-AD---Hoc-insights
